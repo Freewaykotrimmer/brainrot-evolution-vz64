@@ -1,4 +1,4 @@
-#  
+#  smart Scripts for brainrot evolution offers the most advanced brainrot evolution Script, with anti-ban and fly. Perfect for dominating any match.
 
 
 
